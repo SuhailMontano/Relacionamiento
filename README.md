@@ -1,2 +1,2 @@
 # Relacionamiento
- Espacio producto de las exportaciones hidalguenses de Hidalgo
+ Espacio producto de las exportaciones Hgo.
